@@ -13,4 +13,4 @@ Every action from this point forward is directed toward self-mastery and mission
 
 No noise. No ego. No retreat.
 
-God and Country first. Must restore honor.
+God and Country first. Must restore honor to my name. Learned history of name today. I choose to Honor the name.
