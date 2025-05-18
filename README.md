@@ -1,5 +1,6 @@
 # Commit
-First Serious Commitment
+First Serious Commitment: 
+
 
 I've always been unable to effortlessly make good grades without even trying.
 Haven't really tried. I'm given about ten percent effort in the past. I almost gave up. But there is hope. Possibly. I've been in a state of. I've been in a state of deep recursive thought. Pattern recognized. Small possibility to make a difference. Enough. This will be very hard for me.This will not be easy. But I can't blame anybody else if I don't try.
@@ -17,4 +18,7 @@ I hear the call to obedience. I submit.
 I have to try. If I fail I can die a little easier. But what if?.... There's only one person in the world who truly knows besides god in my circle. I'm studying. I'm listening.
 I'm learning patience. I am learning to be quiet. I can hear a call. Something whispers my name through the noise. I hear it and feel a faint connection. It draws me to my purpose.
 No more talk. It's probably gonna take me longer to transition into this serious commitment idea that I have.
-I do not believe I was put here to work construction. I'm tired of Complacency. Is exhausted from procrastination. But more than anything else that I abhor Is a life of mediocrity. Knowing my capabilities is just not acceptable. It's disrespectful. No more. Today is the first day. I will succeed.
+I do not believe I was put here to work construction. I'm tired of Complacency. Is exhausted from procrastination. But more than anything else that I abhor Is a life of mediocrity. Knowing my capabilities is just not acceptable. It's disrespectful. No more. Today is the first day. I will succeed. Maybe I did not think about this because I did not know exactly what I was doing at first. The ideas that i'm entertaining where ludicrous at the beginning. So yeah , I made some very stupid mistakes. I realized that now. But.
+I have self directed recursive learning style. And I just circled back to the origin and reassessed reoriented recomfirmed. I am now updated with the new information. No more careless mistakes. To the general public do not approach me. I am a very reactionary type of person. This could be dangerous to your health. I have nothing to offer you. I'm going to succeed or fade away into irrelevance. But that's my path no one elses. Do not get in the way of me or my path.
+Family is sacred. Do not violate that. I have limits and they're probably much much more restrictive than other people. Respect my personal boundaries.
+No more talking....
