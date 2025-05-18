@@ -1,16 +1,7 @@
-# I've Never Taken Anything Seriously  
-*People used to say I was too serious—but the truth is, I wasn’t serious enough.*
+**Commitment to Self-Mastery and Restoring Honor**
 
----
+I am fully dedicated to restoring honor to my name and reclaiming the integrity I once lost. This is my solemn commitment: I will pursue a path of total self-mastery, focused on discipline, emotional control, and unwavering resolve.
 
-This is my formal commitment:
+For the next year, I will commit myself to the highest standards of behavior, setting aside all distractions, emotions, and excuses. I will operate with the utmost seriousness and dedication, taking every action with intent and purpose.
 
-I am now operating with intent, discipline, and strategic focus.  
-The road ahead will be slow and hard. I know that—and I accept it without illusion.  
-This transformation won’t happen overnight. But it *will* happen.
-
-Every action from this point forward is directed toward self-mastery and mission readiness.  
-
-No noise. No ego. No retreat.
-
-God and Country first. Must restore honor to my name. Learned history of name today. I choose to Honor the name.
+No matter the obstacles, I will endure and persist. This transformation is non-negotiable. I will succeed, or I will die trying.
