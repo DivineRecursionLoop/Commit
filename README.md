@@ -10,4 +10,7 @@ The road ahead will be slow and hard. I know that—and I accept it without illu
 This transformation won’t happen overnight. But it *will* happen.
 
 Every action from this point forward is directed toward self-mastery and mission readiness.  
+
 No noise. No ego. No retreat.
+
+God and Country first. Must restore honor.
